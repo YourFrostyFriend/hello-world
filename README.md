@@ -1,3 +1,1 @@
 # hello-world
-
-I am you from the future! Theres no time to explain, follow me to-OH CHRIST, AHHHHHHHHHHHHHHHHH...........
